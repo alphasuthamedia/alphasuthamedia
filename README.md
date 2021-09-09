@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @alphasutham
+- 👋 Hi, I’m alpha sutha media
 - 👀 I’m interested in learning a new thing
 - 🌱 I’m currently learning java (basic)
 - 📫 You kan foolow me on instagram or twitter @alphasurham
